@@ -1,2 +1,5 @@
-# risibleq.github.io
-Notional Industry
+# Notional Industry
+
+### The Work of Ideas
+
+More website coming soon!
